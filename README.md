@@ -1,0 +1,5 @@
+- 👋 Hi, I’m ✨Julia✨
+- 👀 I’m interested in cooking, reading mystery novels, being in nature, and learning how to be the best me I can be!
+- 🌱 I’m currently studying to get into law school to be a lawyer 🤞
+- 💞️ I’m looking to find delicious recipes that make me and my boyfriend feel allllll yummy inside! I'm also interested in learning as much as I can before entering law school.
+- 📫 How to reach me at <a target="_blank" href="mailto:jrubin97@gmail.com">jrubin97@gmail.com</a>
